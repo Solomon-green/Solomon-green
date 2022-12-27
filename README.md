@@ -9,8 +9,11 @@ Able to apply customer service concepts into IT to improve user experience for c
 - 📫 How to reach me:
 
 Email:bwiresolomon4@gmail.com
+
 TEL: +256-703919467/+256-784621983
+
 Skype:Solomon.green
+
 Twitter:@solo_deve
 
 <!---
